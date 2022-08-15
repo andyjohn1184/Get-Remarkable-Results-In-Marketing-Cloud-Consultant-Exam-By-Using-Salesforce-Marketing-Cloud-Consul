@@ -1,0 +1,1 @@
+# Get-Remarkable-Results-In-Marketing-Cloud-Consultant-Exam-By-Using-Salesforce-Marketing-Cloud-Consul
